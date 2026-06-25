@@ -1,5 +1,5 @@
-# freshthings
-⌑             *~~Toby~~*__me__             🌈             **Fresh**__me__              ໒
+# ᴊᴇsᴛᴇʀthings
+⌑             *~~Toby~~*__me__             🌹             **ᴊᴇsᴛʏɴ**__me__              ໒
 (⠀づ 𖥦◝ )        _she they, he they_             ՞ ՞           
 status : Chillin 
 ♡     Fandoms : Dw, UT, htf , etc.       ⑅             
